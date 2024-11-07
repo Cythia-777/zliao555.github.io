@@ -14,6 +14,7 @@ Fred Lee的母校。
 小 AP， 2012年 PhD@Technical University of Munich School of Medicine
 
 研究领域主要为 MMC，储能系统等。
+2021年跳槽至University of Cambridge，将不会在Duke招收新的博士生
 
 ---
 
